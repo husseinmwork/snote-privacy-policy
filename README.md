@@ -1,0 +1,1 @@
+# snote-privacy-policy
